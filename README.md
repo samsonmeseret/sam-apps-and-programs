@@ -1,1 +1,1 @@
-these are all the different programs and apps built by sam 
+these are all the different programs 
